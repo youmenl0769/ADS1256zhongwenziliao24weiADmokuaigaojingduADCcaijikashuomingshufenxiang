@@ -1,0 +1,1 @@
+# ADS1256zhongwenziliao24weiADmokuaigaojingduADCcaijikashuomingshufenxiang
